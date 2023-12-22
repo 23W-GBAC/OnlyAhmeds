@@ -1,4 +1,4 @@
-Title: **"Exploring Pakistan: A Kaleidoscope of Nature's Wonders"**
+**"Exploring Pakistan: A Kaleidoscope of Nature's Wonders"**
 
 Pakistan, a nation etched into the heart of South Asia, offers a captivating tapestry of geographical diversity that mesmerizes any soul fortunate enough to traverse its landscapes. From the formidable peaks of the Himalayas to the sun-kissed shores of the Arabian Sea, Pakistan's geography weaves tales of natural splendor, inviting all to partake in an enchanting journey.
 
