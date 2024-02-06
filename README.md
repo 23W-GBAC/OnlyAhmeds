@@ -12,6 +12,8 @@ Watch Portion Sizes: Be mindful of portion sizes to avoid overeating. Use smalle
 
 Stay Hydrated: Drink plenty of water throughout the day to stay hydrated and support optimal bodily functions. Limit sugary drinks and opt for water, herbal tea, or infused water instead.
 
+[Visit my website to access the free diet plan calculator and take the first step towards a healthier you!](file:///C:/Users/ahmedshahab/Documents/dietplan.html)
+
 # Effective Workout Routines:
 
 Exercise is an essential component of a healthy lifestyle. It helps improve cardiovascular health, build muscle strength, and boost mood and energy levels. Here are some tips for creating an effective workout routine:
