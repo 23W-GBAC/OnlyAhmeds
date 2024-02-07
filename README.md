@@ -12,7 +12,7 @@ Watch Portion Sizes: Be mindful of portion sizes to avoid overeating. Use smalle
 
 Stay Hydrated: Drink plenty of water throughout the day to stay hydrated and support optimal bodily functions. Limit sugary drinks and opt for water, herbal tea, or infused water instead.
 
-[Visit my website to access the free diet plan calculator and take the first step towards a healthier you!](https://github.com/23W-GBAC/OnlyAhmeds/blob/main/dietplan.html)
+[Visit my website to access the free diet plan calculator and take the first step towards a healthier you!](Dietplan)
 
 # Effective Workout Routines:
 
